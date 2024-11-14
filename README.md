@@ -12,4 +12,4 @@ Start your cryptocurrency journey right now! 😊
 
 ### Read Full Description: [Golden Drainer](https://telegra.ph/Golden-Drainer-10-22)
 
-## Write to Me  [DrainerSupport](https://t.me/GoldenDrainerSupport) 
+## Write to Me  [DrainerSupport](https://t.me/xxc3342) 
